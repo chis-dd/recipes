@@ -1,3 +1,5 @@
+![image](https://github.com/chis-dd/recipes/assets/18661113/fa8d320f-ab25-4b7a-980d-5b167622fbce)
+
 ### Ingredients 
 - 1 large onion
 - 1 bell pepper 
